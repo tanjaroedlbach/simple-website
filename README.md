@@ -2,5 +2,5 @@
 
 ## View My Behance
 
-[My Portfolio](https://https://www.behance.net/tanjaroedlbach)
+[My Portfolio](https://www.behance.net/tanjaroedlbach)
 
